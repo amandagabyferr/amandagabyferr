@@ -1,16 +1,29 @@
-### Hi there 👋
+Bem vindos ao meu perfil :)
 
-<!--
-**amandagabyferr/amandagabyferr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Amanda Gabriely Fernandes 
 
-Here are some ideas to get you started:
+15 anos 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Estudo no Colégio Estadual do Campo Reassentamento São Marcos / Pr 
+
+Atualmente toco 3 tipos de instrumentos musicais: teclado, bateria e violão 
+
+Gosto de esportes princiṕalmente do vôlei 
+
+Gosto muito de anatomia humana e inglês 
+
+Sonho de infância era ser médica veterinaria e viajar para o Mèxico 🇲🇽
+
+Minha série preferida é Stranger Things
+
+Meu filme favorito é The Silence e Bird Box
+
+Já o desenho favorito é Barbie e o Segredo dos animais ( sem erro )
+
+Torço para o Flamengo
+
+Tenho o sonho parecido com o de infância porém agora viajar para diversos países
+
+Meu planeta preferido é Saturno
+
+Gosto também de conversar sobre política
